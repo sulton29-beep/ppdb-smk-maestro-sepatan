@@ -52,7 +52,7 @@ Website resmi untuk Penerimaan Peserta Didik Baru (PPDB) SMK Maestro Sepatan Tah
 
 🌐 **Website Live**: [https://sulton29-beep.github.io/ppdb-smk-maestro-sepatan/](https://sulton29-beep.github.io/ppdb-smk-maestro-sepatan/)  
 📱 **Instagram**: [@esemkamaestro](https://www.instagram.com/esemkamaestro)  
-🎵 **TikTok**: [@smkmaestrosepatan](https://www.tiktok.com/@esemkamaestro)  
+🎵 **TikTok**: [@esemkamaestro](https://www.tiktok.com/@esemkamaestro)  
 📞 **WhatsApp PPDB**: [0856-9476-7929](https://wa.me/6285694767929)  
 
 ## 🗓️ Timeline PPDB 2026/2027
